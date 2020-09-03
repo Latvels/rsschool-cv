@@ -1,7 +1,7 @@
 Kylevich Evgeniy
 ---
 Contacts:  
-Telephone: +375 44 550-95-16  
+Telephone: 8 044 550-95-16  
 Telegram: @Latvels  
 Discord: @Latvels  
 
