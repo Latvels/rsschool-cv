@@ -27,3 +27,4 @@ a certificate in the programming language Python and JavaScript (SoloLearn platf
 
 English:  
 According to the test on the website: https://str.by/ - level A2 +.
+I also continue to study English using mobile applications and books.
